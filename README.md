@@ -17,7 +17,7 @@
 
 **Export game**
 
-[[Haunted Exam Ver น่ากลัว](https://drive.google.com/file/d/19ohWzMWT7SVdtWIUWZ81Z09lo-O5HMdZ/view?usp=sharing)]
+[[Haunted Exam Ver น่ากลัว](https://drive.google.com/file/d/1TPB8QkZp-7OISbM37RL0i6BSqJndtTIJ/view?usp=sharing)]
 
 [[Haunted Exam Ver ไม่น่ากลัว](https://drive.google.com/file/d/1U7_IOR9pmXzEhUsxsKc4l7dO92AWIPez/view?usp=sharing)]
 
