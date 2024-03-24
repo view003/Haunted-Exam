@@ -13,7 +13,7 @@
 **2113212498 ชัยชนะ บุญเหลา**
 
 **Video Review**
-[Haunted Exam Review](https://drive.google.com/file/d/1jvKKUmKKSHjFbHGa_WXcrY7jJwI0mial/view?usp=sharing)
+[Haunted Exam Ver ไม่น่ากลัว Review](https://drive.google.com/file/d/1jvKKUmKKSHjFbHGa_WXcrY7jJwI0mial/view?usp=sharing)
 
 **Export game**
 
