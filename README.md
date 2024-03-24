@@ -14,6 +14,8 @@
 
 **Video Review**
 
+[Haunted Exam Review](https://drive.google.com/file/d/1NH2HWc_6hxM1OwITN_Dzmd4Cw65Rbf3C/view?usp=sharing)
+
 [Haunted Exam Ver AJ Review](https://drive.google.com/file/d/1jvKKUmKKSHjFbHGa_WXcrY7jJwI0mial/view?usp=sharing)
 
 **Export game**
